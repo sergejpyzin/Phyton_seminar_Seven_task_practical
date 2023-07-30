@@ -1,0 +1,1 @@
+# Phyton_seminar_Seven_task_practical
